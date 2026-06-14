@@ -1,6 +1,6 @@
 # 🌳Agro forte, futuro sustentável: equilíbrio entre produção e meio ambiente🌎
 
-🚜O agronegócio é muito importante para a sociedade, pois produz alimentos, gera empregos e ajuda na economia do país. Porém, para que o campo continue produzindo no futuro, é necessário cuidar do meio ambiente. Por isso, o tema do Agrinho 2026 mostra a importância de encontrar um equilíbrio entre a produção agrícola e a preservação da natureza.♻️
+## 🚜O agronegócio é muito importante para a sociedade, pois produz alimentos, gera empregos e ajuda na economia do país. Porém, para que o campo continue produzindo no futuro, é necessário cuidar do meio ambiente. Por isso, o tema do Agrinho 2026 mostra a importância de encontrar um equilíbrio entre a produção agrícola e a preservação da natureza.♻️
 
 💧 Hoje existem várias formas de produzir sem causar tantos impactos ambientais. Os agricultores podem economizar água, proteger os rios, preservar áreas de vegetação e utilizar tecnologias que ajudam a reduzir o desperdício. Essas ações tornam a produção mais eficiente e sustentável. ♻️
 
